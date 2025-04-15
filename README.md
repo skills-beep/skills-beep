@@ -3,7 +3,7 @@
 
 - ⚡ Fun fact **🧠 I write code that even I don’t understand after 3 days... so basically, I’m a magician with memory loss. 🪄🤷‍♂️**
 
-<h3 align="left">Connect with me:</h3>
+<h3 align="left">Connect with me:  bishalsharma153@gmail.com</h3>
 <p align="left">
 </p>
 
